@@ -3,7 +3,7 @@
 
 ### Cybersecurity | Governance, Risk & Compliance | Emerging Technologies
 
-I'm a Cybersecurity professional with an MSc in Cyber Security (Distinction) from the University of Hertfordshire, passionate about information security, technology risk and emerging cybersecurity challenges.
+I'm a Cybersecurity professional with an MSc in Cyber Security(Highest Achievement Award Winner and Distinction holder) from the University of Hertfordshire, passionate about information security, technology risk and emerging cybersecurity challenges.
 
 **Areas of Interest**
 - Governance, Risk & Compliance (GRC)
